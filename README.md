@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Breno Luis 
+# Breno Luis 
 
 **`Estudante de Ciência da Computação`**
 
